@@ -13,4 +13,4 @@ I designed and created using SPSS and HTML.
 
 
 E-mail: renniekaputri15@gmail.com </br>
-WA/Phone: +62-81905146181 (Indonesia)
+WA/Phone: +62-81905146181 
